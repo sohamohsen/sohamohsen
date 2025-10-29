@@ -42,7 +42,7 @@
 ---
 
 ## 📄 Resume
-📎 View my full CV → **[Click Here]([https://drive.google.com/file/d/1W2xYhjjQg40zwk9TttnJKTTXf7ADSL7h/view?usp=sharing](https://drive.google.com/file/d/1a0se3uv2YuaWvQl4SXs8kM_WepznnG11/view?usp=sharing))**  
+📎 View my full CV → **[Click Here](https://drive.google.com/file/d/1a0se3uv2YuaWvQl4SXs8kM_WepznnG11/view?usp=sharing)**  
 
 ---
 
